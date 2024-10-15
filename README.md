@@ -1,6 +1,6 @@
-I’m GGST slayer's unoptimized 2H counter combo
-  I’m interested in Fighting games (beginner), anime, music, books
-    I’m currently learning everything that comes while learning artificial inteligence
+I’m GGST slayer's unoptimized 2H counter combo,
+  I’m interested in Fighting games (beginner), anime, music, books,
+    I’m currently learning everything that comes while learning artificial inteligence,
       Pronouns: he/him
   
 
